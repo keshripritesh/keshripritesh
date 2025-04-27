@@ -56,7 +56,7 @@ Exploring the frontiers of Artificial Intelligence with real-world impact.
 ---
 
 ### 📫 How to Reach Me
-📧 Email: [priteshkeshri467@gmail.com](mailto:priteshkeshri467@gmail.com)  
+📧 Email: [priteshkeshri468@gmail.com](mailto:priteshkeshri468@gmail.com)  
 🌍 Let’s connect, collaborate, and build something incredible!
 
 ---
